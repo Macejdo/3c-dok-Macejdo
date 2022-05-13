@@ -6,3 +6,4 @@ Cisco multilayer prepínač je božská moc
 
 papagaj
 motorka
+soso
